@@ -9,7 +9,7 @@ I'm 21 and enrolled at the Technological Institute of the Philippines. I am curr
 * 🌍  I'm based in Quezon City
 * ✉️  You can contact me at [qkj-calvadores@tip.edu.ph](mailto:qkj-calvadores@tip.edu.ph)
 * 🧠  I'm learning Emerging Technology
-* ⚡  I like to watch anime and play some video games
+* ⚡  I like to watching anime and play some video games
 
 ### Skills
 
